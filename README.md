@@ -1,0 +1,2 @@
+# shitcockpee
+bu fındıklar
